@@ -1,4 +1,4 @@
-### Hi there 👋
+### ☀️ So, what do you say? Why not help one another on this lonely journey? ☀️
 
 <!--
 **sjms/sjms** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
